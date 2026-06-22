@@ -13,10 +13,12 @@
 
 **developer of**
 > `@` [seluwia.xyz](https://seluwia.xyz)
+
 > `@` [ivory.st](https://ivory.st)
 
 **contact**
 > `catchii@ivory.st`
+
 > `catchiie` - discord
 
 **location**
